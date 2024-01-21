@@ -1,1 +1,0 @@
-bikin readme nya kapan-kapan aja :v
